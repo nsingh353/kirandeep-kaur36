@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there MAI GHOO KHANA 👋
 
 <!--
 **kirandeep-kaur36/kirandeep-kaur36** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
